@@ -1,6 +1,6 @@
 ### Oii eu sou a Natascha Fritzen
 
--Sou estudante de Análisis de sistemas 2/4
+-Sou estudante de Lic. Análisis de sistemas 
 
           
 
